@@ -102,4 +102,4 @@ GitHub Pages will generate a public website link.
 
 *Bringing the taste of tradition to every home.*
 
-**HSR Masala – அம்மாவின் கைப்பக்குவம் ஒவ்வொரு பொட்டலத்திலும் ❤️**
+**HSR Masala – அம்மாவின் அன்பும், பாரம்பரியத்தின் மணமும் ❤️**
